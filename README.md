@@ -2,7 +2,7 @@
 
 Not a computer major, but love to learn technology things, especially in web development and cloud computing 🐣. 
 
-    👩‍💻 Web dev geek (Next.js currently)
+    👩‍💻 Web dev geek (currently)
     📨 How to reach me (hm, later..)
 
 <!---

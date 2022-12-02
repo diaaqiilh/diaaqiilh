@@ -1,4 +1,4 @@
-🙌 Allo, I’m Aqiilah
+🙌 Allou, I’m Aqiilah
 
 Not in computer major field, but love to learn technology things, especially in web development and cloud computing 🐣
 

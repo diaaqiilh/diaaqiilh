@@ -1,6 +1,6 @@
 🙌 Allou, I’m Aqiilah
 
-Not in computer major field, but love to learn technology things, especially in web development and cloud computing 🐣
+Not a computer major, but love to learn technology things, especially in web development and cloud computing 🐣. 
 
     👩‍💻 Web dev geek (currently)
     📨 How to reach me (hm, later..)
